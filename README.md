@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 
 
 - 💬 Ask me about Music 
-- 📫 How to reach me: @im_rohan_0fficial._
+- 📫 How to reach me: @its_rohan_0fficial
 - 😄 Pronouns: He/Him
 
 
